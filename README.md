@@ -18,7 +18,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1fiYXj7Sd0BXBlX5oZG9LDrQxN3Rh7yzU/view?usp=drive_link](https://drive.google.com/file/d/1fiYXj7Sd0BXBlX5oZG9LDrQxN3Rh7yzU/view?usp=drive_link)
 
-- ⚡ Fun fact **Hiking is Did you know that hiking can boost your creativity and problem-solving skills? A study published in the journal PLOS ONE found that spending time in nature, disconnected from electronic devices, can increase creative problem-solving skills by as much as 50%. So, the next time you hit the trails, not only are you getting great exercise and enjoying beautiful scenery, but you're also giving your brain a creativity boost!**
+- ⚡ Fun fact **Did you know that hiking can boost your creativity and problem-solving skills? A study published in the journal PLOS ONE found that spending time in nature, disconnected from electronic devices, can increase creative problem-solving skills by as much as 50%. So, the next time you hit the trails, not only are you getting great exercise and enjoying beautiful scenery, but you're also giving your brain a creativity boost!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
